@@ -1,1 +1,1 @@
-hello
+richard ist debil
